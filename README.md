@@ -8,7 +8,7 @@
 
 ✔ Callme: ***He/His*** or ***TeamWorker*** 😊 <br>
 ✔ I Have Completed My Bachelor . <br>
-✔ I’m currently learning ** Flutter **🥰<br>
+✔  ** Flutter Developer **🥰<br>
 ✔ Ask from me anything you want, If I am alive I will answer for sure 😉<br>
 ✔ Real fact : *I Always try to LEARN and SHARE* 😎<br><br><br><br>
 <br><br><br><br>
